@@ -1,6 +1,7 @@
 Happy Teacher Day
 =============
-
+[Imgur](http://i.imgur.com/gk3bX3v.png)
+[Imgur](http://i.imgur.com/LDOkqoA.png)
 
 How to Start
 -------------------
